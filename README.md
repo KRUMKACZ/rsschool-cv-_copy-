@@ -1,0 +1,1 @@
+* https://viruss-git.github.io/rsschool-cv/cv
